@@ -81,6 +81,4 @@ Les prestations de HORITECH couvrent :
 - **WhatsApp** : +242044866757  
 - **Email** : horitech21@gmail.com  
 
----
 
-Ce cahier des charges peut être adapté en fonction des projets spécifiques et des besoins des clients.
